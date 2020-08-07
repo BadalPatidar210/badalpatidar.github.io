@@ -1,1 +1,0 @@
-# badalpatidar.github.io
